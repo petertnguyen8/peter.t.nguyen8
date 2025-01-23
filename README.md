@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @petertnguyen8
-- 👀 I’m interested in gaming, tennis, anime, kdrama, data analyst.
+- 👀 I’m interested in pickleball, tennis, anime, kdrama, & data!
 - 🌱 I’m currently aspiring to be a Data Analyst/Scientist!
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me
